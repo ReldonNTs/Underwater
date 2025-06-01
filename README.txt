@@ -1,4 +1,3 @@
-# Underwater
 
 Разработчик: NTs Games
 
