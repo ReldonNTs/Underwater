@@ -31,3 +31,9 @@
 В любом случае игра будет проиграна. Будьте внимательны и наслаждайтесь игровым процессом. Удачи!
 
 ----------------------------
+
+Ссылка на архив с игрой:
+https://drive.google.com/file/d/1ncQ8_0cNIUSTKuj_3VUSDv6_AInu4SjP/view?usp=sharing
+
+Ссылка на видео фрагмент геймплея:
+https://drive.google.com/file/d/14vOO6ctTfxH0ZFIsgTpukCxwoS-22emY/view?usp=sharing
